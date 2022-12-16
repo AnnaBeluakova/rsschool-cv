@@ -1,4 +1,4 @@
-# **Anna Belyakova** #
+# **Anna Beluakova** #
 
 ## **Contacts:** ##
  * **Location:** Minsk
